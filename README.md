@@ -1,4 +1,4 @@
-Issa Chanzi (he/him)
+Issa Chanzi (he/him)  
 Computer science student at RMIT University 
 
 <!---
